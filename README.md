@@ -1,4 +1,4 @@
 - 👋 Hi, I'm @ribeirojack
 - 👀 I love cinema
 - 🌱 I'm currently just studying.
-- 💞️ Studying Internet Technician
+- 💞️ Studying Técnico em Internet.
